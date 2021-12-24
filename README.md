@@ -1,2 +1,0 @@
-# Homepage
-Rohan Singh Homepage
